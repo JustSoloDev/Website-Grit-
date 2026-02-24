@@ -1,4 +1,4 @@
-<div align="center">
+<div align="center">HdMmFey1QsEALcEWLfbRSwibZxaXpRMZ2JLPbKCjpump
 
 <img src="banner.jpeg" width="100%" alt="GRIT — No Fear. No Compliance."/>
 
